@@ -139,8 +139,8 @@ I use GitHub to:
 
 ## 🤝 Connect With Me
 
-* 💼 LinkedIn: **Add your LinkedIn URL**
-* 📧 Email: **Add your professional email**
+* 💼 Whatsaap: **OceanWhisper777**
+* 📧 Email: **rr7934954@gmail.com**
 * 🐙 GitHub: **You're already here!**
 
 ---
